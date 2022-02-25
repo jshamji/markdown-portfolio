@@ -2,5 +2,5 @@
 
 * Eriksen :sparkles:
 * Ndombeeleee
-* Dembele aka the mousseee :sparkles:
+* **_Dembele aka the mousseee_** :sparkles:
 * SONNNYYYY
